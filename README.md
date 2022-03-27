@@ -1,2 +1,3 @@
-# Hi, there! My Name is Mwero Abdalla
+# Hi, there! I'm Mwero Abdalla
+
 
